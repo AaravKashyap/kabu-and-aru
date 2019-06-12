@@ -1,0 +1,2 @@
+# kabu-and-aru
+dvehsagcbfegiukjbvhgudkjsm 
